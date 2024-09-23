@@ -1,16 +1,12 @@
-## Hi there 👋
-
-<!--
-**aleallende724/aleallende724** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**opa meu nome e alexandre**
+- 🧔 atualmente estou afastado dos gramados
+- ⚽️ ex jogador do fc cascavel futsal
+- 🇵🇾 nascido na cidade do messi 🙅🏾‍♂️
+- ex namorado do cristiano ronaldo❤️‍🔥
+- ⚽️ nao gosto de jogar bola
+- tenho medo de mulher
+- ex jogador proficional do amazonas
+- ![memphis depay](https://media1.tenor.com/m/QA2v--KnP58AAAAC/memfhis-depay.gif)
+- ![memphis depay](https://media1.tenor.com/m/QA2v--KnP58AAAAC/memfhis-depay.gif)
+- ![memphis depay](https://media1.tenor.com/m/QA2v--KnP58AAAAC/memfhis-depay.gif)
+  
